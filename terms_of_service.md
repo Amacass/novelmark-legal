@@ -119,7 +119,7 @@
 
 本規約に関するお問い合わせは、以下の連絡先までお願いいたします。
 
-- メール: s1211086@gmail.com
+- メール: novelmark.support@gmail.com
 
 ---
 
